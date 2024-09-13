@@ -5,7 +5,9 @@
 
 
 🎓 Academic Background
+
 Undergraduate: Econometrics & Business at NYU
+
 Current: Pursuing studies at Columbia University’s School of International and Public Affairs (SIPA)
 
 
